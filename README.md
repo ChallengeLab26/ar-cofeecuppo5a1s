@@ -1,1 +1,0 @@
-# ar-cofeecuppo5a1s
